@@ -1,2 +1,2 @@
 # Clase 1 completada y aprobada con un 10:
-![gifcod](https://tenor.com/search/call-of-duty-meme-gifs)
+![gifcod](https://media1.tenor.com/m/GSQbjDnvnREAAAAd/ghost-cod-call-of-duty.gif)
